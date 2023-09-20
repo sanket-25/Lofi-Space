@@ -1,2 +1,2 @@
 # Lofi-Space
-Love Songs to relax and chill
+Lofi Songs to relax and chill
